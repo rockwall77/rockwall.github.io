@@ -5,8 +5,7 @@
 
 发布地址：https://rockwall77.github.io/
 
-#### 海外官网域名：https://yycloud.org/
-#### 海外官网域名2：https://yyg.ink/
-#### 大陆官网域名3：https://aiyaoyue.com/
+#### 海外官网域名：https://www.yycloud.org/
+#### 大陆官网域名3：https://www.aiyaoyue.com/
 TG电报群组：https://t.me/yaoyuege
 ## 更新时间27/08/2024
